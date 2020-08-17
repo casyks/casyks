@@ -1,16 +1,18 @@
-### Hi there 👋
+### Hi everyone my name is Casy, Casy the Potterhead
 
-<!--
-**Casy331/Casy331** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+I'm simple bot coder and I am a translator on a few websites, of course on small websites but I am more known as a designer because my designs are better.
 
-Here are some ideas to get you started:
+# If you want to reach me I have a few social media accounts they are at the bottom.
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+- [Instagram](https://www.instagram.com/casy331/)
+- [Discord](https://discordapp.com/users/458583603903856640)
+- [Twitter](https://twitter.com/Casy331)
+- [YouTube](https://www.youtube.com/UC98QgaolcJz_T8OIrDtppfA)
+- [Website Soon..]()
+
+- That's all for now, but you can be sure I will continue.
+
+
+
+
+
