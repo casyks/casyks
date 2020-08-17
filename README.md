@@ -6,8 +6,9 @@ I'm simple bot coder and I am a translator on a few websites, of course on small
 
 - [Instagram](https://www.instagram.com/casy331/)
 - [Discord](https://discordapp.com/users/458583603903856640)
+- [Discord Server](https://discord.gg/ShzNfDg)
 - [Twitter](https://twitter.com/Casy331)
-- [YouTube](https://www.youtube.com/UC98QgaolcJz_T8OIrDtppfA)
+- [YouTube](https://www.youtube.com/channel/UC98QgaolcJz_T8OIrDtppfA?view_as=subscriber)
 - [Website Soon..]()
 
 - That's all for now, but you can be sure I will continue.
