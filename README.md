@@ -4,10 +4,10 @@ I'm simple bot coder and I am a translator on a few websites, of course on small
 
 # If you want to reach me I have a few social media accounts they are at the bottom.
 
-- [Instagram](https://www.instagram.com/casy331/)
+- [Instagram](https://www.instagram.com/casyks/)
 - [Discord](https://discordapp.com/users/458583603903856640)
 - [Discord Server](https://discord.gg/ShzNfDg)
-- [Twitter](https://twitter.com/Casy331)
+- [Twitter](https://twitter.com/casyks)
 - [YouTube](https://www.youtube.com/channel/UC98QgaolcJz_T8OIrDtppfA?view_as=subscriber)
 - [Website Soon..]()
 
