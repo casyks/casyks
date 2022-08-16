@@ -1,15 +1,14 @@
-# If you want to contact me I have a few social media accounts they are at the bottom.
+# Hi, I'm Casy!
 
-- [Instagram](https://www.instagram.com/casyks/)
-- [Twitter](https://twitter.com/casyks)
+Just in case, let me explain a little about myself. I am a designer, musician, coder and illustrator! While I usually share my drawings on my [Instagram](https://www.instagram.com/casyks/) or [Twitter](https://twitter.com/casyks) page, I share my personal designs and similar things on my [Discord](https://discord.gg/HSExNkAbSa) server. My [Spotify Artist](https://open.spotify.com/artist/1fHGp2TTdSU1jVQymk6dFD) link if you want to listen when I release a music, and my own personal [Spotify Account](https://open.spotify.com/user/yvg9dvng236uqt9u8nfju6rr2) if you want to see my own song tastes!
 
- That's all for now, but you can be sure I will continue.
+If you want me to design for you, you can reach me on my Discord server and let us talk over a cup of tea. That's all for now, but you can be sure I will continue.
 
-Dicord right now!
+- My Dicord right now! 🌠
 
 [![Discord Presence](https://lanyard-profile-readme.vercel.app/api/458583603903856640)](https://discord.com/users/458583603903856640)
 
-Spotify
+- What am i listening on Spotify? 🎵
 
 [![spotify-github-profile](https://spotify-github-profile.vercel.app/api/view?uid=yvg9dvng236uqt9u8nfju6rr2&cover_image=true&theme=compact)](https://spotify-github-profile.vercel.app/api/view?uid=yvg9dvng236uqt9u8nfju6rr2&redirect=true)
 
