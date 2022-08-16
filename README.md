@@ -5,6 +5,8 @@
 
  That's all for now, but you can be sure I will continue.
 
+[![Discord Presence](https://lanyard-profile-readme.vercel.app/api/458583603903856640)](https://discord.com/users/458583603903856640)
+
 
 
 
