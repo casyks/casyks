@@ -4,7 +4,7 @@ Just in case, let me explain a little about myself. I am a designer, musician, c
 
 If you want me to design for you, you can reach me on my Discord server and let us talk over a cup of tea. That's all for now, but you can be sure I will continue.
 
-- My Dicord right now! 🌠
+- My Discord right now! 🌠
 
 [![Discord Presence](https://lanyard-profile-readme.vercel.app/api/458583603903856640)](https://discord.com/users/458583603903856640)
 
