@@ -2,6 +2,8 @@
 
 Just in case, let me explain a little about myself. I am a designer, musician, coder and illustrator! While I usually share my drawings on my [Instagram](https://www.instagram.com/casyks/) or [Twitter](https://twitter.com/casyks) page, I share my personal designs and similar things on my [Discord](https://discord.gg/HSExNkAbSa) server. My [Spotify Artist](https://open.spotify.com/artist/1fHGp2TTdSU1jVQymk6dFD) link if you want to listen when I release a music, and my own personal [Spotify Account](https://open.spotify.com/user/yvg9dvng236uqt9u8nfju6rr2) if you want to see my own song tastes!
 
+All the designs I made are on my [Behance](http://be.net/casyks) account soon!
+
 If you want me to design for you, you can reach me on my Discord server and let us talk over a cup of tea. That's all for now, but you can be sure I will continue.
 
 - My Discord right now! 🌠
