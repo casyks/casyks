@@ -6,7 +6,7 @@ Just in case, let me explain a little about myself. I am a designer, musician, d
 
 - If you want me to design for you, you can join my Discord and contact me and let's have a [coffee](https://www.buymeacoffee.com/casyks)![NEW!](https://cdn.discordapp.com/emojis/1013054396684320851.gif?size=24&quality=lossless)  together!
  
-- **Casy Right Now!**
+**Right Now!**
 
 
 <details>
