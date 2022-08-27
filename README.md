@@ -6,7 +6,7 @@ All the designs I made are on my [Behance](http://be.net/casyks) account soon!
 
 If you want me to design for you, you can reach me on my Discord server and let us talk over a cup of tea. That's all for now, but you can be sure I will continue.
  
-# Casy Right Now!
+-# Casy Right Now!
 
 - My Discord
 
